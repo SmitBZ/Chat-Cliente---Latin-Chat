@@ -1,1 +1,1 @@
-Se aghregouna nueva Version a latin chat
+Se agrego  nueva Version a latin chat
